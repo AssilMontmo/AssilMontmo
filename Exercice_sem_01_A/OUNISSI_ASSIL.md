@@ -1,0 +1,6 @@
+- 👋 Bonjour, je me prénome Assil Ounissi
+- 👀 Je suis un mordu de jeux videos, d'anime, de manga ainsi que tout ce qui touche a la partie physique d'un ordinateur. 
+- 🌱 Je suis en ce moment en étude en technique d'intégration multimédia au college montmorency.
+- 💞️ J'adorerais faire des collaboration avec des compagnies de jeux indépendantes, des cinéastes ou tout type d'organisation caritatives.
+- 📫 Pour me contacter: 1753177@cmontmorency.qc.ca
+- ⚡ Information supplémentaires: J'ai énormement d'experience en beta testing de différents jeux indé, j'ai pu jouer sur différentes plateformes et comprendre ce qui attire les joueurs sur ces memes plateformes. J'ai également eu la chance de rencontrer des créateurs de contenus francais qui m'ont beaucoup appris a quoi ressemblait le monde de Twitch, YouTube et Instagram.
